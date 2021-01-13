@@ -1,1 +1,0 @@
-# akhil.github.io
